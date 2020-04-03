@@ -1,2 +1,1 @@
-# womb
-of gaielle
+i manipulate form to express the vulnerabilities i yearn to explore with others as a critique of a culture that seems to deny that safe and private space, but also in an attempt to manifest it, to heal our sick culture.
